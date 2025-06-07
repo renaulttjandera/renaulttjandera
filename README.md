@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚 Junior high school student in Indonesia<br>⚙️ Information Technology Division in We The Genesis<br>🧊 Currently learning UI/UX experience and three.js<br>🔥 Looking forward to joining organizations
+📚 Senior high school student in Indonesia<br>
 
 
 ## 🌐 Socials:
